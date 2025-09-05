@@ -1,5 +1,5 @@
-# happy teacger`s day sirji.
-You are the best teacger i've seen in my life.
+# HAPPY TEACHER'S DAY SIRJI.
+You are the best teacher i've seen in my life.
  <br />
 You are my inspiration,mentor and friend.
  <br />
